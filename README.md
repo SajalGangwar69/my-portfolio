@@ -11,12 +11,12 @@ Let's explore the intersection of code and design where innovation meets imagina
 I am currently volunteering as Head of Social Media Team of Egaming Club of IET Khandari. We had hosted Egaming League 2.O, where we advocated and inspired students to 
 be part esports as well as develop video games. You can see my recent edits on this instagram handle.
 
-[IET GAMING CLUB] (https://www.instagram.com/egamingiet/)
+[IET GAMING CLUB](https://www.instagram.com/egamingiet/)
 
 #### YOUTUBE
 You can also check my part time edits on my youtube channel.
 
-[YOUTUBE] (https://www.youtube.com/@rdx-warden8703)
+[YOUTUBE](https://www.youtube.com/@rdx-warden8703)
 
 ## Connect with me
 - **LinkedIn:** [sajal-gangwar](https://www.linkedin.com/in/sajal-gangwar-9b572929b/)
