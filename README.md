@@ -18,6 +18,11 @@ You can also check my part time edits on my youtube channel.
 
 [YOUTUBE] (https://www.youtube.com/@rdx-warden8703)
 
+## Connect with me
+[INSTAGRAM](https://www.instagram.com/btw_itz_sajall/) 
+[LINKEDIN](https://www.linkedin.com/in/sajal-gangwar-9b572929b/)
+[EMAIL](sajalgangwar2222@gmail.com)
+
 
 Feel free to explore my projects and connect with me. I'm always open to collaboration and eager to learn from and contribute to the vibrant tech community!
 
