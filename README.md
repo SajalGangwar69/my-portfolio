@@ -19,8 +19,8 @@ You can also check my part time edits on my youtube channel.
 [YOUTUBE] (https://www.youtube.com/@rdx-warden8703)
 
 ## Connect with me
-[INSTAGRAM](https://www.instagram.com/btw_itz_sajall/) 
-[LINKEDIN](https://www.linkedin.com/in/sajal-gangwar-9b572929b/)
+[INSTAGRAM](https://www.instagram.com/btw_itz_sajall/)  <br/>
+[LINKEDIN](https://www.linkedin.com/in/sajal-gangwar-9b572929b/) <br/>
 [EMAIL](sajalgangwar2222@gmail.com)
 
 
