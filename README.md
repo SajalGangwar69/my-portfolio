@@ -1,4 +1,4 @@
-![Sajal Gangwar](/assets/01.jpeg)
+
 
 Hello there! 👋 I'm Sajal Gangwar, an enthusiastic engineering student with a passion for technology and a knack for problem-solving. Currently pursuing Computer Science Engineering degree at Dr. Bhimrao Ambedkar University, Agra. I thrive on the challenges that the ever-evolving world of engineering presents.
 
